@@ -1,1 +1,0 @@
-# takako_vday
